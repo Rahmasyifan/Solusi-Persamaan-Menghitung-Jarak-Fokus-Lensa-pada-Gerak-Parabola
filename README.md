@@ -1,0 +1,1 @@
+# Solusi-Persamaan-Menghitung-Jarak-Fokus-Lensa-pada-Gerak-Parabola
